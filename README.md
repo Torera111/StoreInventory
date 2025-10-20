@@ -1,1 +1,1 @@
-Temprices built to regulate products so that their won't be trust issues between consumers and sellers
+Temprices is built to regulate products to reduce trust issues between consumers and seller
